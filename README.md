@@ -9,7 +9,6 @@ Despite my proficiency mainly being in web development, I really want to become 
 
 ## Contact Information
 Twitter: @ecmoeton
-Instagram: @ecmoeton
 
 Business inquiries: lizzy@moeton.com
 
